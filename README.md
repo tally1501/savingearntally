@@ -1,2 +1,0 @@
-# savingearntally
-tujuan nabung
